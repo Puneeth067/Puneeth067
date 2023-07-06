@@ -1,0 +1,2 @@
+- 👋Heyy!! I'm Puneeth Kumar studying CSE in Sahyadri College loacted in Adyar, Manglore. 
+- Exploring Tech world 
